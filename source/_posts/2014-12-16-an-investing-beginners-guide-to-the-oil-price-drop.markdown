@@ -47,7 +47,7 @@ Read more from: [Seeking Alpha - Delta to Profit from Low Oil Prices](http://see
 
 The general consensus is that the current oil oversupply is economically unsustainable for producers who are not in the Gulf. These producers rely on shale, tar sands, and deep sea oil, which are much more expensive to produce. Eventually, they will need government intervention or will be squeezed out of their market share. 
 
-However, it’s impossible to time the market so accurately predicting where oil prices is impractical. OPEC, which produce about 40 percent of the world's crude oil, has been very passive about cutting supply to raise prices. There are claims that they won’t budge on supply if the price drops down to $40. 
+However, it’s impossible to time the market so accurately predicting where oil prices is impractical. OPEC, which produces about 40 percent of the world's crude oil, has been very passive about cutting supply to raise prices. There are claims that they won’t budge on supply if the price drops down to $40. 
 
 Luckily the world is no longer solely dependant on OPEC for oil. Russia, America and others are also huge players in the market that have influence on prices. For further information on how the geopolicitcal landscape could quickly cause a rebound in prices, [reference MarketWatch's article](http://www.marketwatch.com/story/three-scenarios-that-result-in-a-rebound-for-oil-2014-12-15)
 
